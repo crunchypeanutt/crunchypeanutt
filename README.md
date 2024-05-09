@@ -1,12 +1,12 @@
 
-<img src='https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/ee2fe1dd-15de-4194-ba1e-1974492a4bcb' width="900">
-
+<img src='https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/889f5f53-0ae3-4ccb-9ac2-5278744022f4' width="900">
 
 wip :)
 
 ![ra_bits_stamp_by_mea_min_da5g3gd-fullview](https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/075ba115-0a65-4a77-9837-6f4216f73223)
 
-<img src='https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/f00b16f1-964f-43a1-8428-08d44101b4be' width="875">
+
+<img src='https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/889f5f53-0ae3-4ccb-9ac2-5278744022f4' width="900">
 
 <!--
 **crunchypeanutt/crunchypeanutt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
