@@ -17,12 +17,6 @@
 
 <p align="center"
 
-![dbnp4og-52ea07e6-4043-4397-a57e-1900bd02e01d](https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/955609b8-104d-4140-8f5c-1cdf4b31ceb5)
-![dbnp4b5-a28d4380-877a-4321-890a-2f8966283f94](https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/94e8f148-0767-468c-a2c9-c22558bf8ba0)
->
-
-<p align="center"
-
 ![d4xxcsv-c6c62e27-5d12-454f-ba73-e99f11f76137](https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/d0aeba4a-c97f-4389-9008-09d08a566f0a)
 ![d7trrfg-b7f20f77-e4c7-4011-8d61-7eb4e81e1373](https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/403bec54-7fb0-49b9-a3e7-8a71f84a2d33)
 ![dbnvo5u-3e144fba-b573-478e-aa5a-8331de9ef742](https://github.com/crunchypeanutt/crunchypeanutt/assets/168962615/cf450f92-f7bd-4c51-adb0-fc8bf04e97b1)
